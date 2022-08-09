@@ -1,0 +1,3 @@
+- 🌱 @VPSrural focada em entregar software de qualidade para seus clientes.
+- 💞️ Buscando sempre a satisfação e evolução de seus cliente 
+- 📫 Desenvolvedor: Guilherme Santos Alves
